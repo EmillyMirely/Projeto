@@ -1,1 +1,1 @@
-"oi chatos"
+"oi amigos"
