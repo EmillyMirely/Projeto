@@ -1,1 +1,1 @@
-"oi amigos"
+"oi amigos" alteração f2
